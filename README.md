@@ -1,4 +1,7 @@
 
-<img width="120" height="120" alt="5d98eafc889d8592af523b2f72dd1466" src="https://github.com/user-attachments/assets/7344bc8d-dbbe-4ab0-9ce3-f22e50d86330" /> 
+<img width="120" height="120" alt="PIZZA" src="https://github.com/user-attachments/assets/7f768868-15c5-4094-a09d-c5f00323489d" />
+
+
+
 
 ⤷ ゛Elliot Lover ˎˊ
